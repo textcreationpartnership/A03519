@@ -33,7 +33,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-CERTAYNE Sermons, or Homelies, appoynted by the kynges Maiestie, to be declared and redde, by all pe
+
 1. ❧ A TABLE of the Sermones or Homelies, conteined in this presente Uolume.
 
 1. THE PREFACE.
